@@ -8,7 +8,7 @@ ABOUT ME:
 >
 >Pronoun: he/him or they/them (i dont rlly care abt this).
 >
->National: Vietnam.
+>Nationality: Vietnam.
 >
 >MBTI: ISFP.
 >
