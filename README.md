@@ -1,5 +1,6 @@
-READ THIS B4 INTERACT W ME ^_^!!![ecc393270f4f499aac55156f6700b92b](https://github.com/user-attachments/assets/2bff87ce-833a-4713-9ff6-25c04acc8ec4)
+READ THIS B4 INTERACT W ME ^_^!!!
 
+![ecc393270f4f499aac55156f6700b92b](https://github.com/user-attachments/assets/63ff7286-f0a7-4518-8dda-35547c581241)
 
 (i knw this readme looks ugly bcuz idk how to use this app, forgive me🤲)
 
@@ -24,8 +25,10 @@ DO NOT INTERACT:
 >Annoying ppl (sorry).
 >
 >GI/HSR fan (uf).
-
-![02c7dbb560b999e20e3bc106979dfac0](https://github.com/user-attachments/assets/2a84458a-3e65-4b4f-8258-10225bd28b65)
+>
+>Problematic ppl.
+>
+>![02c7dbb560b999e20e3bc106979dfac0](https://github.com/user-attachments/assets/2a84458a-3e65-4b4f-8258-10225bd28b65)
 
 PONY TOWN:
 >I usually sit at the torch near the spawner in Vietnamese#1.
