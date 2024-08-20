@@ -7,7 +7,7 @@ READ THIS B4 INTERACT W ME ^_^!!!
 ABOUT ME:
 >Call me: Gjar/Gj. Don't give me random nicknames if we'r not close enough.
 >
->Pronoun: he/him or they/them (i dont rlly care abt this).
+>Pronouns: he/him or they/them (i dont rlly care abt this).
 >
 >Nationality: Vietnam.
 >
@@ -18,7 +18,7 @@ ABOUT ME:
 DO NOT INTERACT:
 >Rac1st.
 >
->Wars supporter.
+>War supporter.
 >
 >P3d0.
 >
