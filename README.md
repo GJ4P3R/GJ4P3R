@@ -1,5 +1,4 @@
-READ THIS B4 INTERACT W ME ^_^!!!![d13j9qb-a0834a6e-1270-4bff-8427-da6400c41916](https://github.com/user-attachments/assets/7ad6de73-3ec3-4b52-9bce-9d187d08ac70)
-
+READ THIS B4 INTERACT W ME ^_^!!!!
 
 ![ecc393270f4f499aac55156f6700b92b](https://github.com/user-attachments/assets/63ff7286-f0a7-4518-8dda-35547c581241)
 
