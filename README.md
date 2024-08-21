@@ -24,7 +24,7 @@ DO NOT INTERACT:
 >
 >Annoying ppl (sorry).
 >
->GI/HSR fan (uf).
+>GI/HSR, Pressure, Randal fans (uf, 90% of them are queers, they alway scares me so bad).
 >
 >Problematic ppl.
 >
