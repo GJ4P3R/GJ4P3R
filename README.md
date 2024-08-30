@@ -35,5 +35,7 @@ PONY TOWN:
 >
 >Mostly AFK so feel free to C + H !! Also please whisper to interact with me.
 >
->I don't talk a lot in PT.
+>Please don't cover me up, I want to see my ponies.
+>
+>I'm not a talkative person, so please be tolerant if I don't reply ur messages.
 ![pt](https://github.com/user-attachments/assets/4f8cb1b6-8cd1-4cab-9cf9-1ce7e8f645a7)
