@@ -7,21 +7,21 @@ READ THIS B4 INTERACT W ME ^_^!!!!
 
 **ABOUT ME:**
 
-Call me: Gjar/Gj. Don't give me random nicknames if we'r not close enough.
+-Call me: Gjar/Gj. Don't give me random nicknames if we'r not close enough.
 
-Pronouns: he/him or they/them (i dont rlly care abt this).
+-Pronouns: he/him or they/them (i dont rlly care abt this).
 
-Nationality: Vietnam.
+-Nationality: Vietnam.
 
-MBTI: ISFP.
+-MBTI: ISFP.
 
-Main fandoms: JJBA, 8:11, DMC, Trigun, Pokemon UNITE.
+-Main fandoms: JJBA, 8:11, DMC, Trigun, Pokemon UNITE.
 
 **DO NOT INTERACT:**
 
-Rac1st.
+-Rac1st.
 
-War supporter.
+-War supporter.
 
 -P3d0.
 
