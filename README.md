@@ -45,4 +45,6 @@ READ THIS B4 INTERACT W ME ^_^!!!!
 
 -I WILL NOT reply to people who always on the "show as offline" status.
 
+-If you see my ponies are sexy asf, *dont steal it or i'll eat you alive*. Just ask for inspo if you want!
+
 *TY FOR READING THIS BULLSHIT*
